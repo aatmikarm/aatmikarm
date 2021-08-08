@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Aatmik ARM
+- 📫 reach me aatmikarm@gmail.com
